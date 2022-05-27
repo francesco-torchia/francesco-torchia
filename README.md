@@ -1,4 +1,4 @@
-### Hi there 👋 Programming is love. Love is Peace 🌈
+### Hi there 👋 Peace. 🌈
 
 <!--
 **francesco-torchia/francesco-torchia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
